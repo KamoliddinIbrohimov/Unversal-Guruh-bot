@@ -1,1 +1,0 @@
-# Unversal-Guruh-bot
